@@ -1,4 +1,4 @@
-# Mi Progreso en Tareitas — Misa
+# Mi Progreso en Tareitas — Cap
 
 > Actualiza esto tú misma. Es tuyo. Nadie más lo ve.
 > Márcalo cuando puedas explicar el tema con tus propias palabras — no cuando lo leíste, sino cuando lo entendiste.
